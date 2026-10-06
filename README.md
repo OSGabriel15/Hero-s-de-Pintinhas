@@ -1,0 +1,1 @@
+# Hero-s-de-Pintinhas
